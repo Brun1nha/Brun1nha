@@ -12,4 +12,4 @@ brunaventurini4@gmail.com
 
 @b.venturinii
 
-![](https://images.app.goo.gl/joxmmEoZgPSZo2YNA)
+![](https://images.app.goo.gl/GN4HFoF7Wj6gK4xy9)
